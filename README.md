@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/bernadette-k-ho/](https://www.linkedin.com/in/bernadette-k-ho/)
 
-- ⚡ Fun fact **If I could only eat one thing for the rest of my life it would be steamed broccoli and garlic.**
+- ⚡ Fun fact **If I could only eat one thing for the rest of my life it would be steamed broccoli. I really like broccoli...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
